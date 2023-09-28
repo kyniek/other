@@ -1,5 +1,5 @@
 
 
-![My Image](DiP_mapa.jpg)
+![My Image](dip_voting/DiP_mapa.jpg)
 
 
