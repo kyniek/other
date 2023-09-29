@@ -24,6 +24,11 @@ Polska gospodarka :
   - powstaje nowy port na wyspie w Gdyni, budują tylko zachodnie firmy : https://youtu.be/9zGiN7YXSHI?t=1297
   - Brakuje nauczycieli : https://wolnemedia.net/edukacja-na-bardzo-ostrym-zakrecie/
 
+
+Świat gospodarka i ekonomia :
+- Waren Buffet "politycy którzy doprowadzili do deficytu większego niż 3% nie powinni mieć już prawa startu w wyborach" : https://youtu.be/89p6ULEBb2U?t=1942
+    
+
 Opresja :
   - minimum 1000zł kary za zbieranie grzybów i sprzedarz : https://youtu.be/FAOXbpnBqNs?t=826 
   - Anarcho-tyrania, inżynieria społeczna totalnej kontroli : https://wolnemedia.net/do-systemu-panstw-europy-ladowana-jest-anarcho-tyrania/
