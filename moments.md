@@ -65,6 +65,7 @@ Militaryzacja :
 
 
 Covid :
+- Główny Inspektorat Farmakologiczny wiedział o wadzie 137 000 preparatów na COVID i pozwolili podać pacjentom : https://wolnemedia.net/117-600-polakow-podano-wadliwe-szczepionki-na-covid-19/ 
 - Większość zmarła na respiratorowe zapalenie płuc, a nie COVID-19 : https://wolnemedia.net/wiekszosc-zmarla-na-respiratorowe-zapalenie-pluc-a-nie-covid-19/
 - Procesy w Niemczech o zniszczone zdrowie po preparatach genetycznych : https://wolnemedia.net/pierwsze-procesy-sadowe-z-powodu-skutkow-szczepien-na-covid-19/ 
 - liczba nagłych zgonów w Australii wzrosła o 5162% : https://wolnemedia.net/liczba-naglych-smierci-w-australii-wzrosla-o-5162/
