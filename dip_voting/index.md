@@ -7,6 +7,8 @@
 
 [Materiały na google drive](https://drive.google.com/drive/folders/1VGRWxLcdxbULb7gJ4ENVkQwAFo0R8IuS?fbclid=IwAR34yAFZ59gyCuKP4wG_yQreDY5hh3IfYazuOHFlNupue5jZOhoUiQk_2hk)
 
+# [Na kogo głosować? Lista kandydatów](https://wybory.gov.pl/sejmsenat2023/pl/komitet/29637)
+
 ![My Image](DiP_mapa.jpg)
 
 ![My Image](DiP_mapa_0.jpg)
