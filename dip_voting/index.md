@@ -7,6 +7,8 @@
 
 [Spot 4 - Demokracja, my zwykli obywatele musimy się angażować i wzajemnie popierać](https://www.youtube.com/watch?v=zbC_neAdY8k)
 
+[anchor](#zbrojenia)
+
 [Materiały na google drive](https://drive.google.com/drive/folders/1VGRWxLcdxbULb7gJ4ENVkQwAFo0R8IuS?fbclid=IwAR34yAFZ59gyCuKP4wG_yQreDY5hh3IfYazuOHFlNupue5jZOhoUiQk_2hk)
 
 [Gdzie głosować? Mapa lokali wyborczych](https://geoportal-krajowy.pl/na-mapie-wybory#x=20.682000241929284&y=52.11262447980542&z=13.48)
@@ -17,3 +19,6 @@
 
 ![My Image](DiP_mapa_0.jpg)
 ![My Image](DiP_mapa_1.jpg)
+
+# zbrojenia
+![My Image](zbrojenia.png)
