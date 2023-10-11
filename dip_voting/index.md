@@ -7,7 +7,7 @@
 
 [Spot 4 - Demokracja, my zwykli obywatele musimy się angażować i wzajemnie popierać](https://www.youtube.com/watch?v=zbC_neAdY8k)
 
-[anchor](#zbrojenia)
+[Podsumowanie wydatków na zbrojenia](#zbrojenia)
 
 [Materiały na google drive](https://drive.google.com/drive/folders/1VGRWxLcdxbULb7gJ4ENVkQwAFo0R8IuS?fbclid=IwAR34yAFZ59gyCuKP4wG_yQreDY5hh3IfYazuOHFlNupue5jZOhoUiQk_2hk)
 
