@@ -121,6 +121,7 @@ Ukraina :
   - https://youtu.be/asc-juCiF-g?t=3868
   - https://youtu.be/TBAefq5Hu-k?t=1743
   - łapanka z psami : https://youtu.be/gSHxo2-k3Gc?t=2547
+  - wojenkomat zakamuflowany w karetce łapie : https://youtu.be/Xy06gYFL0KU?t=2059
 - realia wojny, opowieści ukraińskich żołnierzy :
   - ukraiński program TV, 90% męskiej populacji powinno iść na wojnę : https://youtu.be/gSHxo2-k3Gc?t=2519
   - https://youtu.be/qUUN1yLHvHY?t=1720
