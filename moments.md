@@ -125,6 +125,7 @@ Ukraina :
 - realia wojny, opowieści ukraińskich żołnierzy :
   - ukraiński program TV, 90% męskiej populacji powinno iść na wojnę : https://youtu.be/gSHxo2-k3Gc?t=2519
   - https://youtu.be/qUUN1yLHvHY?t=1720
+  - jeden z wielu cmentarzy pod Charkowem, tysiące grobów : https://youtu.be/QxEi6FpgXFc?t=2636
   - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329 
 
 
