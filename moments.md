@@ -91,6 +91,7 @@ Nazizm :
   - Łotwa, przemarsz weteranów SS : https://youtu.be/yO3V1qE2E6I?t=3408
   - CIA kontrolowała OUN UPA : https://wolnemedia.net/mykola-lebed-i-operacja-aerodynamic/
   - kto finansował nazizm na UA : https://www.mintpressnews.com/us-uk-government-propaganda-specialists-collaborated-nazis-ukraine/285033/
+  - Ukraińskie wojsko ostrzelało amunicją kasetową Biełgorod przed nowym rokiem : https://youtu.be/E2YRKvPGMgA?t=49
 
 
 Białoruś :
