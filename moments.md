@@ -113,6 +113,7 @@ Ukraina :
 - front : https://youtu.be/yO3V1qE2E6I?t=3853 
 - sytuacje :
   - pani z mercedesa w Kijowie zatrzymana grozi policjantom że jej mąż ich do Bahmuta wyśle : https://youtu.be/OtyiOCZLOBo?t=1861
+  - Obchody rocznicy urodzenia bandery we Lwowie, celebrują księża greko-katoliccy podlegli papieżowi : https://youtu.be/g7lXcck6txk?t=2564
   - Ukrainiec o ataku na hotel we Lwowie : https://youtu.be/g7lXcck6txk?t=2236
 - Zeznania cywila ukraińskiego jak to ich armia zamknęła w zaminowanej piwnicy : https://youtu.be/ETZ9eoEfB8c?t=2859
 - Legion cudoziemski, polski, w okopach mądrość wraca : https://youtu.be/HfcX5DAnNQU?t=1241
