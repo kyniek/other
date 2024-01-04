@@ -126,6 +126,7 @@ Ukraina :
   - wojenkomat zakamuflowany w karetce łapie : https://youtu.be/Xy06gYFL0KU?t=2059
 - realia wojny, opowieści ukraińskich żołnierzy :
   - ukraiński program TV, 90% męskiej populacji powinno iść na wojnę : https://youtu.be/gSHxo2-k3Gc?t=2519
+  - żołnierz w TV grozi dzieciom i dziewczętom pobiciem za filmowanie nalotów : https://youtu.be/g7lXcck6txk?t=2434
   - https://youtu.be/qUUN1yLHvHY?t=1720
   - jeden z wielu cmentarzy pod Charkowem, tysiące grobów : https://youtu.be/QxEi6FpgXFc?t=2636
   - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329 
