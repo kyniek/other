@@ -81,6 +81,7 @@ Covid :
 - liczba nagłych zgonów w Australii wzrosła o 5162% : https://wolnemedia.net/liczba-naglych-smierci-w-australii-wzrosla-o-5162/
   Nagłe zgony :
   - Nagły zgon doświadczonego biegacza : https://wolnemedia.net/nagly-zgon-doswiadczonego-biegacza/
+  - Nagły zgon skoczka Mateusza Rutkowskiego mistrza juniorów : https://wolnemedia.net/to-byla-nagla-smierc-z-powodu-zatrzymania-krazenia/
   - Nagły zgon naukowca : https://wolnemedia.net/nagla-i-podejrzana-smierc-niewygodnego-naukowca/
   - Preparaty genetyczne na covid zwiększają ryzyko chorób serca 130 razy : https://wolnemedia.net/preparaty-na-covid-19-zwiekszaja-ryzyko-chorob-serca-o-13200/ 
   - Nagłe zgony polityków państw afrykańskich, po wprowadzeniu reżimu covidowego ustay : https://wolnemedia.net/dziwne-zgony-z-powodu-covid-19-w-afryce/
