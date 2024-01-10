@@ -67,7 +67,8 @@ Historia :
 
 Militaryzacja :
 - Kwalifikacja wojskowa dla wszystkich, ćwiczenia wojskowe leśników : https://youtu.be/JkjBYFJ6Juo?t=435
-- Po wyborach 230 000 Polek i Polaków dostanie wezwania na kwalifikację wojskową : https://www.money.pl/gospodarka/230-tys-osob-dostanie-wezwanie-na-komisje-wojskowa-6945954943376224a.html 
+- Po wyborach 230 000 Polek i Polaków dostanie wezwania na kwalifikację wojskową : https://www.money.pl/gospodarka/230-tys-osob-dostanie-wezwanie-na-komisje-wojskowa-6945954943376224a.html
+- Wipler z mównicy sejmowej zabiega o 300 000 armię i 2 000 000 rezerwistów, więcej niż GB i Francja razem wzięte : https://youtu.be/3WXZAfnK3fQ?t=935
 
 
 Covid :
