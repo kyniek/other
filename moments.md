@@ -33,6 +33,7 @@ Opresja :
   - minimum 1000zł kary za zbieranie grzybów i sprzedarz : https://youtu.be/FAOXbpnBqNs?t=826 
   - Anarcho-tyrania, inżynieria społeczna totalnej kontroli : https://wolnemedia.net/do-systemu-panstw-europy-ladowana-jest-anarcho-tyrania/
   - pobłażliwość dla ukraińskich przestępców, surowe kary dla Polaków, syn posłanki Arent katował dziewczynę i nagrywał : https://youtu.be/3JuLmAJa460?t=4824
+  - Redaktor Koncki zwolniony z gazety wyborczej po krytycznym materiale w TVN : https://youtu.be/3WXZAfnK3fQ?t=1076
   
 Polska afery :
   - majątek Morawieckiego, conajmniej 100 mln zł : https://youtu.be/89p6ULEBb2U?t=1081
