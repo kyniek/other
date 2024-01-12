@@ -55,7 +55,8 @@ Polska afery :
   - Kluczowa rola CPK w odbudowie Ukrainy : https://youtu.be/7y0QUgQfm9U?t=934
 
 Antypolonizm :
-  - Netflix USA, Polak jako wredny nadzorca i przestępca, szkalowana klasa średnia : https://youtu.be/OebNm2aw2_4?t=4282 
+  - Netflix USA, Polak jako wredny nadzorca i przestępca, szkalowana klasa średnia : https://youtu.be/OebNm2aw2_4?t=4282
+  - prymitywny, dekadencki przekaz dla dzieci, gdzie KRRiT? https://youtu.be/7VeBKb-vCGU?t=477
 
 
 Historia :
