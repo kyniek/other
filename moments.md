@@ -131,6 +131,7 @@ Ukraina :
   - https://youtu.be/TBAefq5Hu-k?t=1743
   - łapanka z psami : https://youtu.be/gSHxo2-k3Gc?t=2547
   - wojenkomat zakamuflowany w karetce łapie : https://youtu.be/Xy06gYFL0KU?t=2059
+  - wojenkomat zatrzymał rodzinę w szczerym polu, zabrali męża, pani sama z dzieckiem została, pod czasie SBU ją odszukało i zmusiło do przeproszenia : https://youtu.be/7VeBKb-vCGU?t=216
 - realia wojny, opowieści ukraińskich żołnierzy :
   - ukraiński program TV, 90% męskiej populacji powinno iść na wojnę : https://youtu.be/gSHxo2-k3Gc?t=2519
   - żołnierz w TV grozi dzieciom i dziewczętom pobiciem za filmowanie nalotów : https://youtu.be/g7lXcck6txk?t=2434
