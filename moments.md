@@ -141,7 +141,11 @@ Ukraina :
   - żołnierz w TV grozi dzieciom i dziewczętom pobiciem za filmowanie nalotów : https://youtu.be/g7lXcck6txk?t=2434
   - https://youtu.be/qUUN1yLHvHY?t=1720
   - jeden z wielu cmentarzy pod Charkowem, tysiące grobów : https://youtu.be/QxEi6FpgXFc?t=2636
-  - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329 
+  - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329
+ 
+
+USA
+- przykład mądrości narodu amerykańskiego, poprawka do konstytucji - o wojnie ma decydować społeczeństwo, ci co zagłosują za mogą iść na wojnę : https://youtu.be/7VeBKb-vCGU?t=3751
 
 
 
