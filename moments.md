@@ -142,6 +142,7 @@ Ukraina :
   - żołnierz w TV grozi dzieciom i dziewczętom pobiciem za filmowanie nalotów : https://youtu.be/g7lXcck6txk?t=2434
   - https://youtu.be/qUUN1yLHvHY?t=1720
   - jeden z wielu cmentarzy pod Charkowem, tysiące grobów : https://youtu.be/QxEi6FpgXFc?t=2636
+  - cały batalion odmawia wykonania rozkazu bezensownego samobójczego ataku : https://youtu.be/vnAXFLXb8Fk?t=1108
   - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329
  
 
