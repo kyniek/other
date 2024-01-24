@@ -3,6 +3,7 @@ https://youtu.be/0vs2xMOw6YM?t=2633
 
 Nauka :
 - Szczelinowanie gazu wywołuje trzęsienia ziemi, dowody : https://wolnemedia.net/szczelinowanie-hydrauliczne-wywoluje-trzesienia-ziemi-2/
+- Wychodowany mózg podłączony do AI : https://wolnemedia.net/komputer-z-zywym-mozgiem/
 
 
 Świat wydarzenia :
