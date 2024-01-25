@@ -108,6 +108,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - CIA kontrolowała OUN UPA : https://wolnemedia.net/mykola-lebed-i-operacja-aerodynamic/
   - kto finansował nazizm na UA : https://www.mintpressnews.com/us-uk-government-propaganda-specialists-collaborated-nazis-ukraine/285033/
   - Ukraińskie wojsko ostrzelało amunicją kasetową Biełgorod przed nowym rokiem : https://youtu.be/E2YRKvPGMgA?t=49
+  - Były przedstawiciel NATO w Moskwie mówi że Ukraina nie powinna się bać zabijać cywili : https://youtu.be/loaewZx5YSw?t=2235
 
 
 ### Białoruś :
