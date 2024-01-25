@@ -11,6 +11,9 @@ Nauka :
 - Binden kocha dzieci : https://youtu.be/asc-juCiF-g?t=4050
 - Zmiana rządu w Nigerze, ECOWAS i skorumpowany szef Tinubu chcą zbrojnej interwencji : https://wolnemedia.net/pracz-heroinowy-z-chicago-chce-dokonac-inwazji-na-niger/
 
+Europa wydarzenia :
+- Wypowiedź słowackiego eurodeputowanego przeciw wojnie na Ukrainie : https://youtu.be/loaewZx5YSw?t=2011
+
 
 
 Tony Halik - żołnierz wermachtu
