@@ -151,6 +151,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - jeden z wielu cmentarzy pod Charkowem, tysiące grobów : https://youtu.be/QxEi6FpgXFc?t=2636
   - cały batalion odmawia wykonania rozkazu bezensownego samobójczego ataku : https://youtu.be/vnAXFLXb8Fk?t=1108
   - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329
+  - na Ukrainie szkolą już ludzi bez ręki czy dłoni : https://youtu.be/loaewZx5YSw?t=3262
  
 
 ### USA
