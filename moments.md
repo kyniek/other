@@ -1,17 +1,17 @@
 https://youtu.be/0vs2xMOw6YM?t=2633
 
 
-Nauka :
+### Nauka :
 - Szczelinowanie gazu wywołuje trzęsienia ziemi, dowody : https://wolnemedia.net/szczelinowanie-hydrauliczne-wywoluje-trzesienia-ziemi-2/
 - Wychodowany mózg podłączony do AI : https://wolnemedia.net/komputer-z-zywym-mozgiem/
 
 
-Świat wydarzenia :
+### Świat wydarzenia :
 - Katastrofa badyspapu, zginął pakistański miliarder od amoniaku i rurociągów : https://youtu.be/sGbmHNRkQDk?t=1859
 - Binden kocha dzieci : https://youtu.be/asc-juCiF-g?t=4050
 - Zmiana rządu w Nigerze, ECOWAS i skorumpowany szef Tinubu chcą zbrojnej interwencji : https://wolnemedia.net/pracz-heroinowy-z-chicago-chce-dokonac-inwazji-na-niger/
 
-Europa wydarzenia :
+### Europa wydarzenia :
 - Wypowiedź słowackiego eurodeputowanego przeciw wojnie na Ukrainie : https://youtu.be/loaewZx5YSw?t=2011
 
 
@@ -20,7 +20,7 @@ Tony Halik - żołnierz wermachtu
 https://youtu.be/yO3V1qE2E6I?t=3804
 
 
-Polska gospodarka :
+### Polska gospodarka :
   - Polonezy exportowane do Chin : https://youtu.be/yO3V1qE2E6I?t=2341
   - bieda, piekarnia w PRzemyślu sprzedaje chleb na kromki : https://youtu.be/OtyiOCZLOBo?t=2202 
   - polski instytut w Kijowie robi propagandę, flaga polski przypinana : https://youtu.be/4Rf4o89Ni9o?t=840 
@@ -29,11 +29,11 @@ Polska gospodarka :
   - Brakuje nauczycieli : https://wolnemedia.net/edukacja-na-bardzo-ostrym-zakrecie/
 
 
-Świat gospodarka i ekonomia :
+### Świat gospodarka i ekonomia :
 - Waren Buffet "politycy którzy doprowadzili do deficytu większego niż 3% nie powinni mieć już prawa startu w wyborach" : https://youtu.be/89p6ULEBb2U?t=1942
     
 
-Opresja :
+### Opresja :
   - minimum 1000zł kary za zbieranie grzybów i sprzedarz : https://youtu.be/FAOXbpnBqNs?t=826 
   - Anarcho-tyrania, inżynieria społeczna totalnej kontroli : https://wolnemedia.net/do-systemu-panstw-europy-ladowana-jest-anarcho-tyrania/
   - pobłażliwość dla ukraińskich przestępców, surowe kary dla Polaków, syn posłanki Arent katował dziewczynę i nagrywał : https://youtu.be/3JuLmAJa460?t=4824
@@ -41,7 +41,7 @@ Opresja :
   - Kanada :
     - Dziennikarz próbuje zadać pytanie kanadyjskiej pani premier, podbiega policjant i wmawia mu że go potrącił i aresztuje : https://youtu.be/3WXZAfnK3fQ?t=2973
   
-Polska afery :
+### Polska afery :
   - majątek Morawieckiego, conajmniej 100 mln zł : https://youtu.be/89p6ULEBb2U?t=1081
   - mąż pani Witek z PIS 2 lata na OIOM, za 30 000zł miesiąc : https://youtu.be/ETZ9eoEfB8c?t=4459
   - fala zgonów kadry (17 + 34 + 39 + 20), uniwersytet Mickiewidza : https://youtu.be/HfcX5DAnNQU?t=59 
@@ -61,12 +61,12 @@ Polska afery :
   - Bodnar - minister sprawiedliwości i prezes związku Ukraińców w Polsce oraz zastępna Śmiszek zreferowali działania rządu w ambasadzie USA : https://youtu.be/7VeBKb-vCGU?t=2455
   - Ziobro i Kamiński gnębią wice szefa KNF Kwaśniaka za próby demaskacji afery SKOK, kryją przestępców : https://wolnemedia.net/prawdziwy-bohater-walki-z-korupcja/
 
-Antypolonizm :
+### Antypolonizm :
   - Netflix USA, Polak jako wredny nadzorca i przestępca, szkalowana klasa średnia : https://youtu.be/OebNm2aw2_4?t=4282
   - prymitywny, dekadencki przekaz dla dzieci, gdzie KRRiT? https://youtu.be/7VeBKb-vCGU?t=477
 
 
-Historia :
+### Historia :
 - Jak polski rząd uciekł, agresja III Rzeszy, Słowacji i Ukraińców na rozkaz Canarissa, ZSRR : https://youtu.be/ETZ9eoEfB8c?t=544 
 - operacja miłosierny anioł, masakra NATO w Jugosławi : https://wolnemedia.net/milosierny-aniol-amerykanskie-ludobojstwo-pod-djakovica/
 - CIA za pomocą LSD spowodowało masowe szaleństwo w Pont-Saint-Esprit : https://wolnemedia.net/tajemnica-pont-saint-esprit/
@@ -76,14 +76,14 @@ Historia :
 - Japonia, Shiro Ischi , dowódca bestialskiej jednoski 702, zamordowali 20 000 000 Chińczyków : https://youtu.be/txI26x7w5Mg?t=3349
 
 
-Militaryzacja :
+### Militaryzacja :
 - Kwalifikacja wojskowa dla wszystkich, ćwiczenia wojskowe leśników : https://youtu.be/JkjBYFJ6Juo?t=435
 - Po wyborach 230 000 Polek i Polaków dostanie wezwania na kwalifikację wojskową : https://www.money.pl/gospodarka/230-tys-osob-dostanie-wezwanie-na-komisje-wojskowa-6945954943376224a.html
 - Wipler z mównicy sejmowej zabiega o 300 000 armię i 2 000 000 rezerwistów, więcej niż GB i Francja razem wzięte : https://youtu.be/3WXZAfnK3fQ?t=935
 - Braun obrońca życia chętnie by rozszerzył karę śmierci : https://youtu.be/vnAXFLXb8Fk?t=919
 
 
-Covid :
+### Covid :
 - Główny Inspektorat Farmakologiczny wiedział o wadzie 137 000 preparatów na COVID i pozwolili podać pacjentom : https://wolnemedia.net/117-600-polakow-podano-wadliwe-szczepionki-na-covid-19/ 
 - Większość zmarła na respiratorowe zapalenie płuc, a nie COVID-19 : https://wolnemedia.net/wiekszosc-zmarla-na-respiratorowe-zapalenie-pluc-a-nie-covid-19/
 - Procesy w Niemczech o zniszczone zdrowie po preparatach genetycznych : https://wolnemedia.net/pierwsze-procesy-sadowe-z-powodu-skutkow-szczepien-na-covid-19/ 
@@ -98,7 +98,7 @@ Covid :
   - dr Rish z Yale University wiąże nagły wzrost zachorowań na nowotwory z preparatem na covid : https://wolnemedia.net/po-szczepieniach-na-covid-19-wzrosla-liczba-chorych-na-raka/#comment-296611 
 
 
-Nazizm : 
+### Nazizm : 
   - General Plan Ost, wymordowanie i przesiedlenie 85% Polaków : https://www.prokapitalizm.pl/czyszczenie-przedpola-plan-doktora-hansa-ehlicha-wciaz-aktualny/
   -  Izrael :
     - Zbombardowali 3 szpitale : https://wolnemedia.net/izraelskie-ataki-na-palestynskie-cele-cywilne/
@@ -110,11 +110,11 @@ Nazizm :
   - Ukraińskie wojsko ostrzelało amunicją kasetową Biełgorod przed nowym rokiem : https://youtu.be/E2YRKvPGMgA?t=49
 
 
-Białoruś :
+### Białoruś :
   - Na Białorusi uczczono pamięć ofiar rzezi wołyńskiej : https://wolnemedia.net/na-bialorusi-uczczono-pamiec-ofiar-rzezi-wolynskiej/ 
 
 
-Ukraina :
+### Ukraina :
 - Zmiana sposobu odbywania kary za najcięższe przestępstwa - dozór kuratora : https://youtu.be/89p6ULEBb2U?t=2587
 - USA a konflikt na UA :
   - McGregor, były doradca prezydenta, Krym rosyjski, prześladowanie ludności Dombasu i Ługańska : https://wolnemedia.net/wektory-wojenno-polityczne/ 
@@ -151,7 +151,7 @@ Ukraina :
   - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329
  
 
-USA
+### USA
 - przykład mądrości narodu amerykańskiego, poprawka do konstytucji - o wojnie ma decydować społeczeństwo, ci co zagłosują za mogą iść na wojnę : https://youtu.be/7VeBKb-vCGU?t=3751
 
 
