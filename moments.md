@@ -100,14 +100,16 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 
 ### Nazizm : 
   - General Plan Ost, wymordowanie i przesiedlenie 85% Polaków : https://www.prokapitalizm.pl/czyszczenie-przedpola-plan-doktora-hansa-ehlicha-wciaz-aktualny/
-  -  Izrael :
+  - Izrael :
     - Zbombardowali 3 szpitale : https://wolnemedia.net/izraelskie-ataki-na-palestynskie-cele-cywilne/
-    - Syn rabina który nawoływał by gwałcić palestyńskie kobiety stracił obie nogi podczas pacyfikacji Palestyńczyków : https://youtu.be/3WXZAfnK3fQ?t=2464 
+    - Syn rabina który nawoływał by gwałcić palestyńskie kobiety stracił obie nogi podczas pacyfikacji Palestyńczyków : https://youtu.be/3WXZAfnK3fQ?t=2464
+  - Ukraina :
+     - nazistowskie naszywki u ukraińskich saperów, produkcji USA : https://youtu.be/sosujFgd_qY](https://youtu.be/sosujFgd_qY?t=86
+     - Ukraińskie wojsko ostrzelało amunicją kasetową Biełgorod przed nowym rokiem : https://youtu.be/E2YRKvPGMgA?t=49
   - Kanada, zaproszono do parlamentu 98 letniego SS-mana, owacje na stojąco : https://youtu.be/QMtOHSGHMI4?t=3283 
   - Łotwa, przemarsz weteranów SS : https://youtu.be/yO3V1qE2E6I?t=3408
   - CIA kontrolowała OUN UPA : https://wolnemedia.net/mykola-lebed-i-operacja-aerodynamic/
   - kto finansował nazizm na UA : https://www.mintpressnews.com/us-uk-government-propaganda-specialists-collaborated-nazis-ukraine/285033/
-  - Ukraińskie wojsko ostrzelało amunicją kasetową Biełgorod przed nowym rokiem : https://youtu.be/E2YRKvPGMgA?t=49
   - Były przedstawiciel NATO w Moskwie mówi że Ukraina nie powinna się bać zabijać cywili : https://youtu.be/loaewZx5YSw?t=2235
 
 
