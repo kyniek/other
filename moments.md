@@ -60,6 +60,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - Kasa na CPK przekazana na remont kościoła : https://youtu.be/7VeBKb-vCGU?t=3154
   - Bodnar - minister sprawiedliwości i prezes związku Ukraińców w Polsce oraz zastępna Śmiszek zreferowali działania rządu w ambasadzie USA : https://youtu.be/7VeBKb-vCGU?t=2455
   - Ziobro i Kamiński gnębią wice szefa KNF Kwaśniaka za próby demaskacji afery SKOK, kryją przestępców : https://wolnemedia.net/prawdziwy-bohater-walki-z-korupcja/
+  - Hołownia, wylansowany przez amerykański Endemol w Mam Talent : https://youtu.be/awNdubBBneI?t=970
 
 ### Antypolonizm :
   - Netflix USA, Polak jako wredny nadzorca i przestępca, szkalowana klasa średnia : https://youtu.be/OebNm2aw2_4?t=4282
