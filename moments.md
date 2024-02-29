@@ -121,6 +121,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 ### Ukraina :
 - Zmiana sposobu odbywania kary za najcięższe przestępstwa - dozór kuratora : https://youtu.be/89p6ULEBb2U?t=2587
 - Zełeńsky wydaje dekret o etnicznie ukraińskich ziemiach daleko na wschód : https://youtu.be/loaewZx5YSw?t=2429
+- Śmierć Nawalnego, Kirył Budanov twierdzi że zmarł naturalnie na zakrzep : https://youtu.be/YZkaYI-6ROA?t=173
 - USA a konflikt na UA :
   - McGregor, były doradca prezydenta, Krym rosyjski, prześladowanie ludności Dombasu i Ługańska : https://wolnemedia.net/wektory-wojenno-polityczne/ 
   - pułkownik USA rozmawia z dziennikarzem - 400 000 ukaińskich ofiar, 50 000 inwalidów (2023-08) : https://youtu.be/4Ecf_pOv9Rs?t=370
