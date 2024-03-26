@@ -62,11 +62,23 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - PiS sprowadza do Polski emigrantów, legalizując ich pobyt : https://youtu.be/9zGiN7YXSHI?t=144
   - Ministerstwo sprawiedliwości ujawnia PESELe, adresy : https://youtu.be/By7dtZU6_6o?t=767
   - Kluczowa rola CPK w odbudowie Ukrainy : https://youtu.be/7y0QUgQfm9U?t=934
+  - 28 mln z PARP korupcyjnie danych firmie rodziny Obajtka, kara to tylko dymisja : https://youtu.be/N0r0QB5Ysv0?t=1286
+  - Policja przejęła arsenał nowoczesnej broni : https://youtu.be/1PYoPDTkaU4?t=654
+  - Polski żyd, idol brauna to aktor Bartosz Sadowski : https://youtu.be/hKkWrOwV0PQ?t=938
+  - Hot 16 challenge prorocza piosenka Brauna, zapowiada wojnę : https://youtu.be/WcB7nF62fgQ?t=180
   - Kasa na CPK przekazana na remont kościoła : https://youtu.be/7VeBKb-vCGU?t=3154
   - Bodnar - minister sprawiedliwości i prezes związku Ukraińców w Polsce oraz zastępna Śmiszek zreferowali działania rządu w ambasadzie USA : https://youtu.be/7VeBKb-vCGU?t=2455
   - Ziobro i Kamiński gnębią wice szefa KNF Kwaśniaka za próby demaskacji afery SKOK, kryją przestępców : https://wolnemedia.net/prawdziwy-bohater-walki-z-korupcja/
   - Hołownia, wylansowany przez amerykański Endemol w Mam Talent : https://youtu.be/awNdubBBneI?t=970
   - Hołownia, boi się śmieciarki : https://youtu.be/l4_AOIfvjw0?t=1194
+
+
+### Polska wydarzenia :
+  - KO i marsz miliona serc : https://youtu.be/rO3SRYORMO4?t=1574
+  - Duda powitany w USA przez rodaków na paradzie Puławskiego : https://youtu.be/rO3SRYORMO4?t=1796
+  - Mentzen - na wszystko może nie starczyć ale na wojsko kasa musi być : https://youtu.be/majWZ2ZoVs4?t=744
+  - Ekspose Tuska, co nas czeka : https://youtu.be/hKkWrOwV0PQ?t=1896
+
 
 ### Antypolonizm :
   - Netflix USA, Polak jako wredny nadzorca i przestępca, szkalowana klasa średnia : https://youtu.be/OebNm2aw2_4?t=4282
@@ -81,10 +93,13 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 - Powstanie warszawskie - jak to naprawdę było : https://youtu.be/TBAefq5Hu-k?t=365 
 - Powstanie warszawskie - fałszerstwo PAP zeznania świadka : https://youtu.be/TBAefq5Hu-k?t=2350
 - Japonia, Shiro Ischi , dowódca bestialskiej jednoski 702, zamordowali 20 000 000 Chińczyków : https://youtu.be/txI26x7w5Mg?t=3349
+- Przygotowania do I Wojny Światowej Wielkiej Brytanii, planowane : https://wolnemedia.net/sekretne-poczatki-pierwszej-wojny-swiatowej/
+- USA zaatakowały wietnam na podstawie fałszywej prowokacji mordując 3 miliony ludzi : https://wolnemedia.net/wojna-w-wietnamie-zamach-na-jfk-incydent-tonkinski-i-dziedzictwo-konfliktu/  
 
 
 ### Militaryzacja :
 - Kwalifikacja wojskowa dla wszystkich, ćwiczenia wojskowe leśników : https://youtu.be/JkjBYFJ6Juo?t=435
+- MON kupuje radiostacje za 1 MLD z USA mimo że takie same są produkowane w Polsce : https://youtu.be/hKkWrOwV0PQ?t=2532  
 - Po wyborach 230 000 Polek i Polaków dostanie wezwania na kwalifikację wojskową : https://www.money.pl/gospodarka/230-tys-osob-dostanie-wezwanie-na-komisje-wojskowa-6945954943376224a.html
 - Wipler z mównicy sejmowej zabiega o 300 000 armię i 2 000 000 rezerwistów, więcej niż GB i Francja razem wzięte : https://youtu.be/3WXZAfnK3fQ?t=935
 - Braun obrońca życia chętnie by rozszerzył karę śmierci : https://youtu.be/vnAXFLXb8Fk?t=919
@@ -95,12 +110,17 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 - Większość zmarła na respiratorowe zapalenie płuc, a nie COVID-19 : https://wolnemedia.net/wiekszosc-zmarla-na-respiratorowe-zapalenie-pluc-a-nie-covid-19/
 - Procesy w Niemczech o zniszczone zdrowie po preparatach genetycznych : https://wolnemedia.net/pierwsze-procesy-sadowe-z-powodu-skutkow-szczepien-na-covid-19/ 
 - liczba nagłych zgonów w Australii wzrosła o 5162% : https://wolnemedia.net/liczba-naglych-smierci-w-australii-wzrosla-o-5162/
+- Badanie naukowe, 3 do 5 krotnie więcej przypadków u zaszczepionych : https://wolnemedia.net/krwawienie-z-pochwy-u-niemiesiaczkujacych-kobiet-po-preparatach-mrna/
+- Rząd Izraela odnalazł umowy z Pfizerem, wcześniej twierdzili że nie mogą zlokalizować umów : https://wolnemedia.net/rzad-izraela-odnalazl-zagubione-umowy-z-pfizerem/
+- Nagłe zesłabnięcie piłkarza, szczeppiony na covid-19 : https://wolnemedia.net/pilkarz-trafil-z-boiska-do-szpitala-z-powodu-zatrzymania-serca/  
   Nagłe zgony :
+  - Nagła śmierć młodego żołnierza USA, twarzy kampanii podawania preparatów na covid19 : https://wolnemedia.net/nagla-smierc-39-letniego-zolnierza-zaszczepionego-na-covid-19/
   - Nagły zgon doświadczonego biegacza : https://wolnemedia.net/nagly-zgon-doswiadczonego-biegacza/
   - Nagły zgon skoczka Mateusza Rutkowskiego mistrza juniorów : https://wolnemedia.net/to-byla-nagla-smierc-z-powodu-zatrzymania-krazenia/
   - Nagły zgon naukowca : https://wolnemedia.net/nagla-i-podejrzana-smierc-niewygodnego-naukowca/
   - Preparaty genetyczne na covid zwiększają ryzyko chorób serca 130 razy : https://wolnemedia.net/preparaty-na-covid-19-zwiekszaja-ryzyko-chorob-serca-o-13200/ 
   - Nagłe zgony polityków państw afrykańskich, po wprowadzeniu reżimu covidowego ustay : https://wolnemedia.net/dziwne-zgony-z-powodu-covid-19-w-afryce/
+  - Nagły zgon 8 latka promującego pereparaty covid : https://wolnemedia.net/nagla-smierc-8-latka-ktory-promowal-szczepienia-na-covid-19/  
   - Zmarł nagle operator TVN 56l : https://youtu.be/7VeBKb-vCGU?t=3627
   - dr Rish z Yale University wiąże nagły wzrost zachorowań na nowotwory z preparatem na covid : https://wolnemedia.net/po-szczepieniach-na-covid-19-wzrosla-liczba-chorych-na-raka/#comment-296611 
 
