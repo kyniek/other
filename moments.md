@@ -4,12 +4,16 @@ https://youtu.be/0vs2xMOw6YM?t=2633
 ### Nauka :
 - Szczelinowanie gazu wywołuje trzęsienia ziemi, dowody : https://wolnemedia.net/szczelinowanie-hydrauliczne-wywoluje-trzesienia-ziemi-2/
 - Wychodowany mózg podłączony do AI : https://wolnemedia.net/komputer-z-zywym-mozgiem/
+- Ludzie głupieją od fluoru : https://www.sciencedirect.com/science/article/pii/S0892036223001435?via%3Dihub
+- AI zarządzająca korporacją : https://wolnemedia.net/mika-pierwszy-humanoidalny-dyrektor-generalny-z-ai/
 
 
 ### Świat wydarzenia :
 - Katastrofa badyspapu, zginął pakistański miliarder od amoniaku i rurociągów : https://youtu.be/sGbmHNRkQDk?t=1859
 - Binden kocha dzieci : https://youtu.be/asc-juCiF-g?t=4050
 - Zmiana rządu w Nigerze, ECOWAS i skorumpowany szef Tinubu chcą zbrojnej interwencji : https://wolnemedia.net/pracz-heroinowy-z-chicago-chce-dokonac-inwazji-na-niger/
+- Rzekome wysadzenie przez Rosjan gazociągu Baltic Connector okazało się kłamstwem, fiński statek Polar Bear zerwał rurę kotwicą : https://youtu.be/lOLD1-CVDVg?t=112
+- Pracownik amerykańskiej korporacji zabija ludzi protestujących przeciw odebraniu domów pod kopalnie miedzi : https://youtu.be/lOLD1-CVDVg?t=3273 
 
 ### Europa wydarzenia :
 - Wypowiedź słowackiego eurodeputowanego przeciw wojnie na Ukrainie : https://youtu.be/loaewZx5YSw?t=2011
@@ -27,6 +31,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - polska emerytura dla Ukraińca za przepracowanie choćby 1 dnia w Polsce : https://youtu.be/ETZ9eoEfB8c?t=4124 
   - powstaje nowy port na wyspie w Gdyni, budują tylko zachodnie firmy : https://youtu.be/9zGiN7YXSHI?t=1297
   - Brakuje nauczycieli : https://wolnemedia.net/edukacja-na-bardzo-ostrym-zakrecie/
+  - Nowa dyrektywa UE, zakaz wymiany silnika, skrzyni biegów i reperaturek : https://youtu.be/WcB7nF62fgQ?t=1525
 
 
 ### Świat gospodarka i ekonomia :
