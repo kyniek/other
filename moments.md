@@ -138,33 +138,62 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - CIA kontrolowała OUN UPA : https://wolnemedia.net/mykola-lebed-i-operacja-aerodynamic/
   - kto finansował nazizm na UA : https://www.mintpressnews.com/us-uk-government-propaganda-specialists-collaborated-nazis-ukraine/285033/
   - Były przedstawiciel NATO w Moskwie mówi że Ukraina nie powinna się bać zabijać cywili : https://youtu.be/loaewZx5YSw?t=2235
+  - Na Ukrainie prawnie zakazano używania języka rosyjskiego : https://youtu.be/rSQKNNKCbXw?t=2134
+  - Ukraina, nazistowska piosenka na rozpoczęciu roku szkolnego, hymn UPA : https://youtu.be/1PYoPDTkaU4?t=3964
+  - militarystyczne wychowywanie dzieci, jak janczarów : https://youtu.be/rO3SRYORMO4?t=3089
+  - Zełeńsky nadał imię Jevgenija Konowalca batalionowi : https://youtu.be/rSQKNNKCbXw?t=796
+  - Ukraina : więzienie dla ludzi bo zostali i pracowali gdy przyszli Rosjanie : https://www.politico.eu/article/in-ukraine-collaboration-cases-arent-always-clear-cut/
+  - Aleja Aniołków w Doniecku : https://youtu.be/majWZ2ZoVs4?t=1590  
+
+
 
 
 ### Białoruś :
-  - Na Białorusi uczczono pamięć ofiar rzezi wołyńskiej : https://wolnemedia.net/na-bialorusi-uczczono-pamiec-ofiar-rzezi-wolynskiej/ 
+  - Na Białorusi uczczono pamięć ofiar rzezi wołyńskiej : https://wolnemedia.net/na-bialorusi-uczczono-pamiec-ofiar-rzezi-wolynskiej/
+
+
+### Izrael : 
+- Netanyahu nakazał wojsku wycofanie i nie reagowanie przez 7 godzin - Jewish Pro-Life Foundation : https://wolnemedia.net/netanjahu-nakazal-wojsku-wycofac-sie-podczas-ataku-hamasu/
+- Zbrodnie Izraela, IDF zabiło uciekającą rodzinę, Humans Right Watch : https://youtu.be/1PYoPDTkaU4?t=3086
+- żołnierze IDF zamordowali kobiety i dzieci ukrywające się w szkole : https://wolnemedia.net/izraelscy-zolnierze-dokonali-egzekucji-kobiet-i-dzieci-w-szkole/
+- Wywiad z krytycznym wobec Izraela żydem : https://wolnemedia.net/jak-umierala-nadzieja-w-izraelu/
+
+
+### Kanada
+  - 4% wszystkich zgonów to eutanazja : https://wolnemedia.net/36-eutanazji-dziennie/
+  - Eutanazja dla niemowląt : https://wolnemedia.net/legalizacja-eutanazji-dla-niemowlat-w-kanadzie/
+  - Brak leczenia, ale eutanazja tak : https://wolnemedia.net/wybral-eutanazje-bo-na-chemioterapie-musialby-dlugo-czekac/
 
 
 ### Ukraina :
 - Zmiana sposobu odbywania kary za najcięższe przestępstwa - dozór kuratora : https://youtu.be/89p6ULEBb2U?t=2587
+- Ukraina, cała prawda - wywiad z dziennikarzem śledczym Leszkiem Szymborskim : https://www.youtube.com/watch?v=42RiQLwQwzI  
 - Zełeńsky wydaje dekret o etnicznie ukraińskich ziemiach daleko na wschód : https://youtu.be/loaewZx5YSw?t=2429
 - Śmierć Nawalnego, Kirył Budanov twierdzi że zmarł naturalnie na zakrzep : https://youtu.be/YZkaYI-6ROA?t=173
 - USA a konflikt na UA :
   - McGregor, były doradca prezydenta, Krym rosyjski, prześladowanie ludności Dombasu i Ługańska : https://wolnemedia.net/wektory-wojenno-polityczne/ 
   - pułkownik USA rozmawia z dziennikarzem - 400 000 ukaińskich ofiar, 50 000 inwalidów (2023-08) : https://youtu.be/4Ecf_pOv9Rs?t=370
+  - Propagowanie bestialstwa, propaganda o 19 letnim dowódcy Bradleya który strzela do rosyjskich czołgów a w jednym z nich jest jego ojciec : https://youtu.be/rO3SRYORMO4?t=2882   
 - handel organami :
   - Na zakarpaciu zatrzymano ukraińca sprzedającego niemowlaki na organy : https://wolnemedia.net/ukrainski-handlarz-dziecmi-sprzedawal-niemowlaki-na-organy/
   - analiza, raporty dowodzące handlu dziećmi i organami na Ukrainie : https://wolnemedia.net/ukraina-swiatowe-centrum-handlu-organami-i-dzieciecej-prostytucji/
 - Elity :
     - Zełeńsky kupił kolejną willę - w Egipcie : https://wolnemedia.net/zelenski-kupil-za-posrednictwem-tesciowej-luksusowa-wille-w-egipcie/
+    - Zełeńsky za pośrednictwem kolegi z Kwartał 95 kupił 2 jachty oceaniczne za 75 mlln USD : https://youtu.be/RoKGY0b1b5E?t=1399
     - były minister obrony UA - Reznikow - kupił willę we francuskim Cannes : https://youtu.be/89p6ULEBb2U?t=3027
-- pisanki wielkanocne z ukraińskimi symbolami narodowymi : https://youtu.be/sEzc4hd4BuQ?t=2974 
+    - Wille urzędników, bogacą się na wojnie : https://youtu.be/N0r0QB5Ysv0?t=3919  
+- Nazizm na Ukrainie :
+  - pisanki wielkanocne z ukraińskimi symbolami narodowymi : https://youtu.be/sEzc4hd4BuQ?t=2974
+  - tatuaże azowca : https://youtu.be/RoKGY0b1b5E?t=1008
 - front : https://youtu.be/yO3V1qE2E6I?t=3853 
 - sytuacje :
   - pani z mercedesa w Kijowie zatrzymana grozi policjantom że jej mąż ich do Bahmuta wyśle : https://youtu.be/OtyiOCZLOBo?t=1861
   - Obchody rocznicy urodzenia bandery we Lwowie, celebrują księża greko-katoliccy podlegli papieżowi : https://youtu.be/g7lXcck6txk?t=2564
   - Ukrainiec o ataku na hotel we Lwowie : https://youtu.be/g7lXcck6txk?t=2236
   - Dzieci w ukraińskich szkołach dobrze się bawią śpiewając baćko nasz bandera : https://youtu.be/fmXoAYxOOoI?t=4129
+  - Znalezienie lokalizatora GPS w jednej z limuzyn Dudy po wizycie na UA : https://youtu.be/N0r0QB5Ysv0?t=2802  
 - Zeznania cywila ukraińskiego jak to ich armia zamknęła w zaminowanej piwnicy : https://youtu.be/ETZ9eoEfB8c?t=2859
+- Zachodnia pomoc dla Ukrainy, robaki w fasoli : https://youtu.be/hKkWrOwV0PQ?t=3289  
 - Legion cudoziemski, polski, w okopach mądrość wraca : https://youtu.be/HfcX5DAnNQU?t=1241
 - dron ukraiński sterowany anteną starlink od Muska : https://youtu.be/FAOXbpnBqNs?t=2933 
 - Uciekanie przed wojenkomatem, łapanki :
@@ -173,9 +202,11 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - https://youtu.be/asc-juCiF-g?t=3868
   - https://youtu.be/TBAefq5Hu-k?t=1743
   - łapanka z psami : https://youtu.be/gSHxo2-k3Gc?t=2547
+  - https://youtu.be/KSDqYv6BjDA?t=2095  
   - https://youtu.be/fmXoAYxOOoI?t=3999
   - wojenkomat zakamuflowany w karetce łapie : https://youtu.be/Xy06gYFL0KU?t=2059
   - wojenkomat zatrzymał rodzinę w szczerym polu, zabrali męża, pani sama z dzieckiem została, pod czasie SBU ją odszukało i zmusiło do przeproszenia : https://youtu.be/7VeBKb-vCGU?t=216
+  - Powiastka dla popa ukraińskiego, oficer grozi uduszeniem : https://youtu.be/hKkWrOwV0PQ?t=4354    
 - realia wojny, opowieści ukraińskich żołnierzy :
   - ukraiński program TV, 90% męskiej populacji powinno iść na wojnę : https://youtu.be/gSHxo2-k3Gc?t=2519
   - żołnierz w TV grozi dzieciom i dziewczętom pobiciem za filmowanie nalotów : https://youtu.be/g7lXcck6txk?t=2434
@@ -190,7 +221,14 @@ https://youtu.be/yO3V1qE2E6I?t=3804
  
 
 ### USA
-- przykład mądrości narodu amerykańskiego, poprawka do konstytucji - o wojnie ma decydować społeczeństwo, ci co zagłosują za mogą iść na wojnę : https://youtu.be/7VeBKb-vCGU?t=3751
+  - Pentagon przyznaje że nuklearny wojskowy program Iranu nie istnieje : https://wolnemedia.net/wojskowy-program-nuklearny-iranu-nie-istnieje/
+  - Kongresmenka amerykańska - należy prześledzić numery seryjne amerykańskiej broni używanej przez Hamas, czy to pomoc dla Ukrainy : https://youtu.be/vYgII-eSBaw?t=1442
+  - Wielkie sprzątanie przed wizytą Xi-Jinpinga w USA, ale EU mówi się że ma nielubić Chin : https://youtu.be/kKYOYmckfmE?t=3208
+  - Rosyjska ropa płynie do Pentagonu przez Turcię i Grecję : https://youtu.be/1PYoPDTkaU4?t=2006
+  - Najwybitniejszy amerykański politolog Mearsheimer : Ukraina musi stać się neutralna i pogodzić się z utratą części terytorium : https://wolnemedia.net/prof-mearsheimer-wzywa-kijow-do-miedzynarodowej-neutralnosci/
+  - AI firmy ubezpieczeniowej limituje leczenie powodując zgony : https://wolnemedia.net/najwiekszy-ubezpieczyciel-w-usa-pozwany-za-stosowanie-ai/
+  - Chiński lek przeciw nowotworowy zatwierdzony przez FDC, ale dla amerykanów 30 razy droższy niż w Chinach : https://youtu.be/hKkWrOwV0PQ?t=3999
+  - przykład mądrości narodu amerykańskiego, poprawka do konstytucji - o wojnie ma decydować społeczeństwo, ci co zagłosują za mogą iść na wojnę : https://youtu.be/7VeBKb-vCGU?t=3751
 
 
 
@@ -200,3 +238,21 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 
 Inne :
   - 3d printed car : https://www.youtube.com/watch?v=-pxNIrBaDrA
+
+### Kalendarz :  
+**1985** – Jaruzelski–Rockefeller, przekazanie Polski z jednych rąk żydowskich do drugich, tj. spod opieki sowieckiej pod opiekę amerykańską  
+**1993** – konsekwentne zakończenie wycofywania wojsk sowieckich z Polski, chwila oddechu przed utratą gospodarki przez Polskę  
+**1999** – NATO  
+**2004** – UE  
+**2005** – Chabad Lubawicz, Polin  
+**2007** – B’nai B’rith  
+**2009** – Deklaracja Terezińska, umowa z USA o statusie wojsk amerykańskich w Polsce  
+**2010** – katastrofa smoleńska  
+**2011** – Tusk–Netanyahu  
+**2012** – rozpoczęcie lokowania wojsk amerykańskich w Polsce  
+**2015** – Agenda 2030  
+**2017** – ustawa S 447  
+**2018** – deklaracja o partnerstwie strategicznym z USA; żart z ustawą o IPN  
+**2019** – deklaracja o współpracy obronnej w zakresie obecności wojsk amerykańskich w Polsce; pierwszy Światowy Szczyt Szczepień; deklaracja o pogłębionej współpracy obronnej jw.  
+**2020** – Szumowski – stan zagrożenia epidemicznego, stan epidemii w Polsce; umowa o wzmocnionej współpracy obronnej jw.  
+**2021** – zasieki wzdłuż granicy z Białorusią; Duda – stan wyjątkowy na części obszaru Polski 
