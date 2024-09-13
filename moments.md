@@ -45,6 +45,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - Redaktor Koncki zwolniony z gazety wyborczej po krytycznym materiale w TVN : https://youtu.be/3WXZAfnK3fQ?t=1076
   - Kanada :
     - Dziennikarz próbuje zadać pytanie kanadyjskiej pani premier, podbiega policjant i wmawia mu że go potrącił i aresztuje : https://youtu.be/3WXZAfnK3fQ?t=2973
+- Cenzura i stronniczość mediów : https://wolnemedia.net/jednookie-dziennikarstwo/
   
 ### Polska afery :
   - majątek Morawieckiego, conajmniej 100 mln zł : https://youtu.be/89p6ULEBb2U?t=1081
