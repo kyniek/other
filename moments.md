@@ -231,6 +231,9 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - Chiński lek przeciw nowotworowy zatwierdzony przez FDC, ale dla amerykanów 30 razy droższy niż w Chinach : https://youtu.be/hKkWrOwV0PQ?t=3999
   - przykład mądrości narodu amerykańskiego, poprawka do konstytucji - o wojnie ma decydować społeczeństwo, ci co zagłosują za mogą iść na wojnę : https://youtu.be/7VeBKb-vCGU?t=3751
 
+### Wielka Brytania
+  - Sekretne początki I Wojny Światowej WWI, kucia lordów : https://wolnemedia.net/sekretne-poczatki-pierwszej-wojny-swiatowej/
+
 
 
 
